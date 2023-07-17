@@ -1,0 +1,2 @@
+# gptingo
+LOS ODIO
